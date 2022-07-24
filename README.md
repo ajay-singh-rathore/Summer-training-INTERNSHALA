@@ -1,2 +1,2 @@
-# Summwer-training-INTERNSHALA-
+# Summer-training-INTERNSHALA-
 Summer training
